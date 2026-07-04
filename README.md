@@ -2,7 +2,7 @@
 
 **SOC Analyst (Tier 1) | Blue Team | Islamabad, Pakistan**
 
-BS Information Technology — University of Chakwal (2026) | IELTS Band 7.0 | Open to internships and SOC roles
+BS Information Technology at University of Chakwal (2026) | IELTS Band 7.0 | Open to internships and SOC roles
 
 ---
 
